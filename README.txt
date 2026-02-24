@@ -1,10 +1,10 @@
 Integrantes:
 
-Jonathan Garbiel lopez reyes
+Jonathan Garbiel Lopez Reyes
 202404730
-dulce maria esperanza gutierrez caceres
+Dulce Maria Esperanza Gutierrez Caceres
 202400009
-Marck dilan orantes garcía
+Marck Dilan Orantes García
 201807484
 CHRISTOPHER ALEJANDRO MONROY MALDONADO
 2024-----
